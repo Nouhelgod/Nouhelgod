@@ -2,6 +2,6 @@
 
 
 
-✉️ Telegram: **@Nouhelgod**
+✉️ Telegram: **@lobotomyambassador**
 
 
